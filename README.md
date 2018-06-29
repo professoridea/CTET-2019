@@ -1,0 +1,2 @@
+# CTET-2019
+Central Teacher Eligibility Test or <a href="https://professoridea.com/ctet-2019/">CTET 2019</a> is an all India level entrance exam conducted by CBSE (Central Board of Secondary Education) every year for those candidates who are interested/desired to join Central Govt. Schools such as Tibetan School/KVS/ NVS etc. as a Teacher. CTET February 2019 application form is expected to be commenced in the month of February and Examination is also expected to be held in the month of February. In this article we provide you all information related to CTET 2019
